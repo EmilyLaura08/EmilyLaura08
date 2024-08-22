@@ -9,3 +9,4 @@ Meu nome é Emily Laura;
 ## Você pode entrar em contato comigo: 📧
 emilylauracruz@gmail.com
 
+![](https://media.tenor.com/z1YT2LePMWkAAAAi/tkthao219-peach.gif)
